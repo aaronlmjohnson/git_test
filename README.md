@@ -1,0 +1,1 @@
+This is Aaron's first git project hi karstin how are you doing i see you're currently reading this i'm only typing what they're telling me... nhelp send help! jk XD
